@@ -1,1 +1,1 @@
-# GratitudeCoin
+
